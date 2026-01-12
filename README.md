@@ -8,9 +8,9 @@
 
 ![4d295c640582ebec75818811d4450b77](https://github.com/user-attachments/assets/0ea4ea73-e4a5-4ade-b310-8e8e4948e737)
 
-Hi! The name's Valentine or Valentina!, you may call me Val!![IMG-6408](https://github.com/user-attachments/assets/312da305-58da-414d-9ed0-505a8a84a3f5)
+ℌ𝔦! 𝔗𝔥𝔢 𝔫𝔞𝔪𝔢'𝔰 𝔙𝔞𝔩𝔢𝔫𝔱𝔦𝔫𝔢 𝔬𝔯 𝔙𝔞𝔩𝔢𝔫𝔱𝔦𝔫𝔞!, 𝔶𝔬𝔲 𝔪𝔞𝔶 𝔠𝔞𝔩𝔩 𝔪𝔢 𝔙𝔞𝔩!![IMG-6408](https://github.com/user-attachments/assets/312da305-58da-414d-9ed0-505a8a84a3f5)
 
-I am free c+h, even if I'm with friends, I'm okay with c+h!!![IMG-6409](https://github.com/user-attachments/assets/d8cbc6e6-e77a-4940-9af7-5a126dcae3be)
+ℑ 𝔞𝔪 𝔣𝔯𝔢𝔢 𝔠+𝔥, 𝔢𝔳𝔢𝔫 𝔦𝔣 ℑ'𝔪 𝔴𝔦𝔱𝔥 𝔣𝔯𝔦𝔢𝔫𝔡𝔰, ℑ'𝔪 𝔬𝔨𝔞𝔶 𝔴𝔦𝔱𝔥 𝔠+𝔥!!![IMG-6409](https://github.com/user-attachments/assets/d8cbc6e6-e77a-4940-9af7-5a126dcae3be)
 
 <img width="168" height="39" alt="Tumblr-l-343317159676515" src="https://github.com/user-attachments/assets/55c4fb7f-c066-4689-b6c3-b5aa4528ef87" />
 
@@ -33,7 +33,7 @@ I am free c+h, even if I'm with friends, I'm okay with c+h!!![IMG-6409](https://
 
 ![IMG-6417](https://github.com/user-attachments/assets/ac553001-a35c-4441-a7cc-98bc032cbe51)<img width="20" height="20" alt="IMG-6391" src="https://github.com/user-attachments/assets/ab725108-2be8-422c-95fe-05f25595cddd" />
 
-If you want more information, check out my strawpage!^_^![IMG-7152](https://github.com/user-attachments/assets/19b51c94-aa53-49d2-8ca5-3bb9ae840e11)![IMG-9197](https://github.com/user-attachments/assets/9c8cc7c4-bb3b-4225-857e-4c4e0db4e1d8)
+ℑ𝔣 𝔶𝔬𝔲 𝔴𝔞𝔫𝔱 𝔪𝔬𝔯𝔢 𝔦𝔫𝔣𝔬𝔯𝔪𝔞𝔱𝔦𝔬𝔫, 𝔠𝔥𝔢𝔠𝔨 𝔬𝔲𝔱 𝔪𝔶 𝔰𝔱𝔯𝔞𝔴𝔭𝔞𝔤𝔢!^_^![IMG-7152](https://github.com/user-attachments/assets/19b51c94-aa53-49d2-8ca5-3bb9ae840e11)![IMG-9197](https://github.com/user-attachments/assets/9c8cc7c4-bb3b-4225-857e-4c4e0db4e1d8)
 
 ![Tumblr-l-344310679320343](https://github.com/user-attachments/assets/afb0c138-e3a7-4863-8327-3f5a17240e5a)
 
