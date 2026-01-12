@@ -14,22 +14,22 @@ I am free c+h, even if I'm with friends, I'm okay with c+h!!![IMG-6409](https://
 
 <img width="168" height="39" alt="Tumblr-l-343317159676515" src="https://github.com/user-attachments/assets/55c4fb7f-c066-4689-b6c3-b5aa4528ef87" />
 
-DNI -
-Darkshippers. (or Proshippers, whatever you call it.)
-Foot kinks, or any type of kinks that is literally weird (politely and respectfully, dni)
-People who literally hates on other people for being "cringe" (they just shame on people for being themselves)
+𝔇𝔑ℑ -
+𝔇𝔞𝔯𝔨𝔰𝔥𝔦𝔭𝔭𝔢𝔯𝔰. (𝔬𝔯 𝔓𝔯𝔬𝔰𝔥𝔦𝔭𝔭𝔢𝔯𝔰, 𝔴𝔥𝔞𝔱𝔢𝔳𝔢𝔯 𝔶𝔬𝔲 𝔠𝔞𝔩𝔩 𝔦𝔱.)
+𝔉𝔬𝔬𝔱 𝔨𝔦𝔫𝔨𝔰, 𝔬𝔯 𝔞𝔫𝔶 𝔱𝔶𝔭𝔢 𝔬𝔣 𝔨𝔦𝔫𝔨𝔰 𝔱𝔥𝔞𝔱 𝔦𝔰 𝔩𝔦𝔱𝔢𝔯𝔞𝔩𝔩𝔶 𝔴𝔢𝔦𝔯𝔡 (𝔭𝔬𝔩𝔦𝔱𝔢𝔩𝔶 𝔞𝔫𝔡 𝔯𝔢𝔰𝔭𝔢𝔠𝔱𝔣𝔲𝔩𝔩𝔶, 𝔡𝔫𝔦)
+𝔓𝔢𝔬𝔭𝔩𝔢 𝔴𝔥𝔬 𝔩𝔦𝔱𝔢𝔯𝔞𝔩𝔩𝔶 𝔥𝔞𝔱𝔢𝔰 𝔬𝔫 𝔬𝔱𝔥𝔢𝔯 𝔭𝔢𝔬𝔭𝔩𝔢 𝔣𝔬𝔯 𝔟𝔢𝔦𝔫𝔤 "𝔠𝔯𝔦𝔫𝔤𝔢" (𝔱𝔥𝔢𝔶 𝔧𝔲𝔰𝔱 𝔰𝔥𝔞𝔪𝔢 𝔬𝔫 𝔭𝔢𝔬𝔭𝔩𝔢 𝔣𝔬𝔯 𝔟𝔢𝔦𝔫𝔤 𝔱𝔥𝔢𝔪𝔰𝔢𝔩𝔳𝔢𝔰)
 
 ![IMG-7989](https://github.com/user-attachments/assets/4df2a0df-b8b9-4935-879a-e57d5b499671)![IMG-6395](https://github.com/user-attachments/assets/bc61ba95-6325-4f36-956b-27d1acc94fe6)![IMG-6398](https://github.com/user-attachments/assets/8ec7ff07-e8c0-4835-83c7-8fdf57ed43e4)![IMG-6756](https://github.com/user-attachments/assets/05f2b375-a636-4356-923d-4600912a4f7b)
 
-Ints-
-Gachiakuta
-Castlevania
-The Vampire Hunter D : Bloodlust
-twisted Wonderland
-Jujutsu Kaisen
-KNY
-Cookie run Kingdom/Cookie run Oven:break/Cookie run tower of Adventures/Cookie run: the Witches' tower
-CH/Countryhuman
+ℑ𝔫𝔱𝔰-
+𝔊𝔞𝔠𝔥𝔦𝔞𝔨𝔲𝔱𝔞
+ℭ𝔞𝔰𝔱𝔩𝔢𝔳𝔞𝔫𝔦𝔞
+𝔗𝔥𝔢 𝔙𝔞𝔪𝔭𝔦𝔯𝔢 ℌ𝔲𝔫𝔱𝔢𝔯 𝔇 : 𝔅𝔩𝔬𝔬𝔡𝔩𝔲𝔰𝔱
+𝔱𝔴𝔦𝔰𝔱𝔢𝔡 𝔚𝔬𝔫𝔡𝔢𝔯𝔩𝔞𝔫𝔡
+𝔍𝔲𝔧𝔲𝔱𝔰𝔲 𝔎𝔞𝔦𝔰𝔢𝔫
+𝔎𝔑𝔜
+ℭ𝔬𝔬𝔨𝔦𝔢 𝔯𝔲𝔫 𝔎𝔦𝔫𝔤𝔡𝔬𝔪/ℭ𝔬𝔬𝔨𝔦𝔢 𝔯𝔲𝔫 𝔒𝔳𝔢𝔫:𝔟𝔯𝔢𝔞𝔨/ℭ𝔬𝔬𝔨𝔦𝔢 𝔯𝔲𝔫 𝔱𝔬𝔴𝔢𝔯 𝔬𝔣 𝔄𝔡𝔳𝔢𝔫𝔱𝔲𝔯𝔢𝔰/ℭ𝔬𝔬𝔨𝔦𝔢 𝔯𝔲𝔫: 𝔱𝔥𝔢 𝔚𝔦𝔱𝔠𝔥𝔢𝔰' 𝔱𝔬𝔴𝔢𝔯
+ℭℌ/ℭ𝔬𝔲𝔫𝔱𝔯𝔶𝔥𝔲𝔪𝔞𝔫
 
 ![IMG-6417](https://github.com/user-attachments/assets/ac553001-a35c-4441-a7cc-98bc032cbe51)<img width="20" height="20" alt="IMG-6391" src="https://github.com/user-attachments/assets/ab725108-2be8-422c-95fe-05f25595cddd" />
 
